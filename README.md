@@ -1,0 +1,2 @@
+# cathrinestudiemagasin.github.io
+Studiemagasinet
